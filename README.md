@@ -1,0 +1,1 @@
+# aurevix-trading-academy
